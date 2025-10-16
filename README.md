@@ -36,6 +36,6 @@ It also improved my ability to interpret quantitative results and present findin
 
 ## Author
 **Fatma Nur Şahin**  
-🎓 Business Administration & Management Information Systems Student  
+🎓 Business Administration & Management Information Systems  
 📧 https://www.linkedin.com/in/fatmanursahin3340/
 📍 Türkiye
